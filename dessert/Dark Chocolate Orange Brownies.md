@@ -24,3 +24,5 @@ Cut the butter and chocolate into chunks. Place both in a heat-proof bowl, and p
 Pre-heat the oven to 160C. Mix the eggs and sugar together in a bowl until light and fluffy, then add the orange zest. Once the chocolate and butter mixture has cooled slightly, add it to the egg and sugar mixture. Sift the flour into the bowl, and gently fold it in.
 
 Grease a baking tin, and transfer the brownie mixture into it. Cook for 25 minutes. A toothpick inserted into the centre should come out mostly clean; but as the brownies are quite moist some crumbs will cling to it.
+
+For a bit of extra indulgence, drizzle the brownies with icing made by combining icing sugar with orange juice.
